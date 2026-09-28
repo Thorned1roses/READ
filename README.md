@@ -1,3 +1,4 @@
-# READ
+# READ <img width="600" height="338" alt="camping with Techno" src="https://github.com/user-attachments/assets/5aa86a83-cd1c-4b16-801c-d1c6c308bd2f" />
+
 
 When interacting keep in mind I may say things that concern you. Im also A MINOR Dni if you are trying to do ungodly things.my actions may make me look more mature than my age. if I go silent its mainly because someone said something that had 1. triggered me or 2. I wasnt very comfortable with.or 3.i had to go afk. <--- only think the following if it was mid convo. I reference things alot and sometimes I don't think before I speak and im sorry If I offended you. My references are mainly from dsmp,wilbur,Technoblade,Sm11ty, Soup, supernatural,songs, and a lot of vines. I don't have any social medias except for Tumblr, Also I'm not the best with memory. Do not remind me of any drama surrounding will and shubble. This will constantly be updated if I need to.
